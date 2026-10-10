@@ -1,0 +1,1 @@
+# ECOWATCH---OneEarth-NextGen-Innovators-2026-Project
